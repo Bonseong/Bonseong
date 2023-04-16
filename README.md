@@ -7,4 +7,4 @@ Let the world know what you're all about
 - :computer: EUGENE IT Service. IOT Developer Intern (02. 2020 ~ 05. 2020)
 - :pencil2: KOPO Trainee for HANA TI (03. 2021 ~ 10. 2021)
 - :office: HANA TI (11. 2021 ~)
-- 🏫 ??? (03. 2022 ~)
+- 🏫 HYU GSAI (03. 2022 ~)
